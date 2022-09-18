@@ -1,1 +1,1 @@
-# jasko
+# jasko want bussiness in shortcuts
